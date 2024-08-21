@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning school stuff
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me yes
-- 😄 Pronouns: ze/zer
+- 😄 Pronouns: Soup/Tire/Wind/Ustries/Ze/zer/zhe/zher/them/walmart/bag/canes_sauce/Fortnite/xhe/xher/ahe/aher/vhe/vher/ AND I DON'T GO BY THEY / THEMK!<#MLKFNSDOIPKMNGKSJMNKJGNKJOWENGIOSDHNOIGHSODJGJOJSREJGOSHOIUGHEWOIUHJGOPIUSHPOIHE/ANEGFLUHEOGJAKFPOWKF)(#UIOGJEIU#HTGUOI@QHGIUHWIUEGUWHEIGUhWIEOHGiouher/
 - ⚡ Fun fact: ...
 
 <!---
