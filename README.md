@@ -1,9 +1,8 @@
 - 👋 Hi, I’m @SouptireWindustries
-- 👀 I’m interested in Anime
 - 🌱 I’m currently learning school stuff
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me yes
-- 😄 Pronouns: Soup/Tire/Wind/Ustries/Ze/zer/zhe/zher/them/walmart/bag/canes_sauce/Fortnite/xhe/xher/ahe/aher/vhe/vher/ AND I DON'T GO BY THEY / THEMK!<#MLKFNSDOIPKMNGKSJMNKJGNKJOWENGIOSDHNOIGHSODJGJOJSREJGOSHOIUGHEWOIUHJGOPIUSHPOIHE/ANEGFLUHEOGJAKFPOWKF)(#UIOGJEIU#HTGUOI@QHGIUHWIUEGUWHEIGUhWIEOHGiouher/
+- 📫 How to reach me, yes
+- 😄 Pronouns: Soup/Tire/Wind/Ustries/Ze/zer/zhe/zher/them/walmart/bag/canessauce/Fortnite/xhe/xher/ahe/aher/vhe/vher/ AND I DON'T GO BY THEY / THEMK!<#MLKFNSDOIPKMNGKSJMNKJGNKJOWENGIOSDHNOIGHSODJGJOJSREJGOSHOIUGHEWOIUHJGOPIUSHPOIHE/ANEGFLUHEOGJAKFPOWKF)(#UIOGJEIU#HTGUOI@QHGIUHWIUEGUWHEIGUhWIEOHGiouher/ 
 - ⚡ Fun fact: ...
 
 <!---
